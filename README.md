@@ -1,4 +1,4 @@
-🔭 I’m currently working on something cool 😉<br>🌱 I’m currently learning everything 😂<br>🎯 2023 Goals: Contribute more to open source projects<br>⚡ Fun fact: I love to code that's it !
+🎯 2024 Goals: Contribute more to open source projects<br>⚡ Fun fact: I love to code that's it !
 
 
 ## 
